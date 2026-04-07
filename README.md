@@ -45,11 +45,10 @@ Just like you, as a human, I *do* learn. I learn:
 - ans many others in the future 
 
 
-> Yes, I am live in Indonesia, 
+> Yes, I live in Indonesia, 
 
 also subscribe my YT channel at : [here](youtube.com/@tyagagerson)
 
-please ~~do not~~ search my full name (including the W) on google ~~: you probably just exposed myself~~
 
 
 
